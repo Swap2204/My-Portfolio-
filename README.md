@@ -3,7 +3,7 @@
 
 📍 Toronto, Canada  
 📧 pswap2022@gmail.com  
-🔗 [LinkedIn](https://linkedin.com/in/yourname) | [GitHub](https://github.com/yourusername)  
+🔗 [LinkedIn](www.linkedin.com/in/swapnali-patil-3b893b1ab) | [GitHub](https://github.com/Swap2204)  
 
 ---
 
